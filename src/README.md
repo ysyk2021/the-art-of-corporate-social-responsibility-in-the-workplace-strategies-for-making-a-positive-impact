@@ -1,5 +1,4 @@
 
-
 Corporate Social Responsibility (CSR) has become an increasingly important aspect of business in recent years. As consumers and employees become more socially and environmentally conscious, companies are under increasing pressure to demonstrate their commitment to social responsibility and sustainability. But CSR is more than just a buzzword or a marketing tactic – it's an opportunity for companies to make a positive impact on society while also benefiting their bottom line.
 
 In this book, we'll explore the art of corporate social responsibility in the workplace, and provide strategies for making a positive impact both within and outside of your organization. We'll draw on examples from companies of all sizes and industries, and highlight best practices for implementing successful CSR programs and initiatives.
