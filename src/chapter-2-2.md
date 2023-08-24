@@ -1,5 +1,3 @@
-Understanding the Science behind CSR
-=========================================================================================
 
 Corporate social responsibility (CSR) is becoming more and more important in today's business world. In this chapter, we will define CSR and discuss the science behind it.
 

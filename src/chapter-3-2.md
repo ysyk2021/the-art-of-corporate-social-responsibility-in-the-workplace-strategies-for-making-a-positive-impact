@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-===============================================================================================================
 
 Developing a corporate social responsibility (CSR) mindset is essential for creating long-lasting positive impact in the workplace. However, it can be challenging to stay motivated and focused on CSR goals amidst competing priorities and distractions. In this chapter, we will explore how utilizing positive self-talk and visualization can help develop a CSR mindset and stay motivated.
 

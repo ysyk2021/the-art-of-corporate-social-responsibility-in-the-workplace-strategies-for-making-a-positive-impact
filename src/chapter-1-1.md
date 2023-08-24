@@ -1,5 +1,3 @@
-Understanding the Importance of Corporate Social Responsibility (CSR) in the Workplace
-===============================================================================================================
 
 Corporate Social Responsibility (CSR) is becoming increasingly important for organizations as they strive to create a positive impact on society and the environment. In this chapter, we will explore the importance of CSR in the workplace.
 

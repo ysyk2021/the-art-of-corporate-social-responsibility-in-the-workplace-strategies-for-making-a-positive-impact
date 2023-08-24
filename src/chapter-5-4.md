@@ -1,5 +1,3 @@
-Fostering Trust and Respect
-==================================================================
 
 Corporate Social Responsibility (CSR) is an important part of any company's strategy. However, it's not enough to simply implement CSR initiatives -- it's also important to foster trust and respect among stakeholders. In this chapter, we will discuss how to maximize your CSR skills by fostering trust and respect in the workplace.
 

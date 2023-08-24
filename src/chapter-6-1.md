@@ -1,5 +1,3 @@
-Understanding the Principles of Effective CSR
-====================================================================================
 
 Developing effective corporate social responsibility (CSR) skills is essential for creating long-lasting positive impact in the workplace. In this chapter, we will explore the principles of effective CSR and how to develop the necessary skills.
 

@@ -1,5 +1,3 @@
-The Benefits of Focusing on CSR
-======================================================================================================
 
 Corporate social responsibility (CSR) is increasingly recognized as an essential part of business strategy. In this chapter, we will explore the power of CSR and the benefits it can bring to organizations and their stakeholders.
 

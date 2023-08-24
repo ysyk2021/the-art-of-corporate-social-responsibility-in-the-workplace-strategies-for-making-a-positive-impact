@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through CSR
-==============================================================================================================
 
 Developing empathy and compassion is essential for creating a corporate social responsibility (CSR) mindset in the workplace. In this chapter, we will explore how CSR initiatives can help develop empathy and compassion among employees, the impact of these emotions on employee engagement and motivation, and strategies for promoting empathy and compassion through CSR initiatives.
 

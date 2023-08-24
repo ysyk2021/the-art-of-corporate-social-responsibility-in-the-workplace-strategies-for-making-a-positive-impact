@@ -1,5 +1,3 @@
-Overview of Corporate Social Responsibility
-================================================================================================
 
 Corporate Social Responsibility (CSR) is a concept that has gained significant traction in recent years. The practice involves taking responsibility for the impact of an organization's activities on society and the environment. In this chapter, we will provide an overview of CSR and discuss its importance in the workplace.
 

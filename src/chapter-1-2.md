@@ -1,5 +1,3 @@
-Common Misconceptions About CSR
-========================================================
 
 Corporate Social Responsibility (CSR) is becoming increasingly important for organizations as they strive to create a positive impact on society and the environment. However, there are still many misconceptions surrounding CSR that can hinder its effectiveness. In this chapter, we will explore some of the most common misconceptions about CSR.
 

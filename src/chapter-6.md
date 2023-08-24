@@ -1,5 +1,3 @@
-Chapter 6: Developing Your CSR Skills
-=====================================
 
 Developing your skills in corporate social responsibility (CSR) is essential for building a sustainable, socially responsible, and successful organization. In this chapter, we will explore strategies for developing your CSR skills.
 

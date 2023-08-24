@@ -1,5 +1,3 @@
-Finding Ways to Make a Positive Impact
-=============================================================================
 
 Maximizing your corporate social responsibility (CSR) skills involves finding ways to make a positive impact in the workplace. In this chapter, we will explore strategies for identifying and maximizing opportunities to create social and environmental value through CSR initiatives.
 

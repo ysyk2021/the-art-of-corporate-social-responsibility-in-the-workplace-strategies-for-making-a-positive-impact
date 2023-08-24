@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-=================================================================================
 
 Technology has dramatically changed the way businesses operate, communicate, and engage with stakeholders. In this chapter, we will explore how technology can be leveraged to promote accessibility and inclusivity, thereby enhancing corporate social responsibility (CSR) initiatives.
 

@@ -1,5 +1,3 @@
-Chapter 4: Understanding the Power of Corporate Social Responsibility
-=====================================================================
 
 Corporate social responsibility (CSR) is a powerful approach to business that can drive meaningful positive impact for both organizations and society at large. In this chapter, we will explore the benefits of focusing on CSR, how CSR contributes to success, the impact of CSR on individuals and organizations, and how to address limiting beliefs that may prevent organizations from fully embracing CSR.
 

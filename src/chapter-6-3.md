@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-======================================================================
 
 Developing your corporate social responsibility (CSR) skills is an important part of creating a positive impact in the workplace. In this chapter, we will explore strategies for utilizing feedback and coaching to develop your CSR skills and enhance your ability to incorporate CSR into business practices.
 

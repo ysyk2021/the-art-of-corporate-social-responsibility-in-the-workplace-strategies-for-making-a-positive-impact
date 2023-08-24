@@ -1,5 +1,3 @@
-Communicating Effectively
-================================================================
 
 Effective communication is essential for successful Corporate Social Responsibility (CSR) initiatives. Whether it's communicating with stakeholders, marketing CSR initiatives to customers, or reporting on progress to investors, effective communication can help to build trust, transparency, and engagement. In this chapter, we will explore some strategies for communicating effectively about CSR.
 

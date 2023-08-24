@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for CSR
-========================================
 
 Technology has revolutionized the way companies approach corporate social responsibility (CSR). By leveraging technology, companies can enhance their impact, streamline their processes, and reach a broader audience. In this chapter, we will explore how companies can identify and use technology to enhance their CSR efforts.
 

@@ -1,5 +1,3 @@
-Recognizing How CSR Contributes to Success
-=================================================================================================================
 
 Corporate social responsibility (CSR) is becoming increasingly important for organizations, with many recognizing that CSR can contribute to success in various ways. In this chapter, we will explore the power of CSR and how it contributes to success.
 

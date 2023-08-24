@@ -1,5 +1,3 @@
-Techniques for Cultivating a CSR Mindset
-=========================================================================================================
 
 Developing a corporate social responsibility (CSR) mindset is essential for creating long-lasting positive impact in the workplace. It involves an intentional shift in mindset towards prioritizing sustainability and social responsibility. In this chapter, we will explore techniques for cultivating a CSR mindset.
 

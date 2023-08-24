@@ -1,5 +1,3 @@
-Celebrating CSR-Based Achievements
-========================================================================
 
 Creating a culture of corporate social responsibility (CSR) is essential for building a sustainable and socially responsible organization. In this chapter, we will explore strategies for celebrating CSR-based achievements and fostering a culture of CSR within the workplace.
 

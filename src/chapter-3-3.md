@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-=======================================================================================================
 
 Setting realistic goals and objectives is essential for developing a corporate social responsibility (CSR) mindset in the workplace. In this chapter, we will explore the process of setting CSR goals and objectives, the benefits of doing so, and how to ensure that these goals align with the organization's overall strategy.
 

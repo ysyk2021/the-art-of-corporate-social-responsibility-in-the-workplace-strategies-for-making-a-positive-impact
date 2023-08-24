@@ -1,5 +1,3 @@
-Identifying Common Sources of Resistance to CSR
-======================================================================================
 
 Despite the growing importance of corporate social responsibility (CSR), resistance to CSR initiatives can arise within organizations. In this chapter, we will explore common sources of resistance to CSR and strategies for managing resistance.
 

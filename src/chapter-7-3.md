@@ -1,5 +1,3 @@
-Addressing Fear and Uncertainty
-======================================================================
 
 Corporate social responsibility (CSR) initiatives can bring about fear and uncertainty among stakeholders, including employees, shareholders, and customers. In this chapter, we will explore strategies for addressing fear and uncertainty to manage resistance to CSR.
 

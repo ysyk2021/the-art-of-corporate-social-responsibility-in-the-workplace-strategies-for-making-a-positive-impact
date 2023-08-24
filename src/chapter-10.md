@@ -1,5 +1,3 @@
-Chapter 10: Measuring Results and Learning from Experience
-==========================================================
 
 In this chapter, we will explore the process of measuring results and learning from experience in corporate social responsibility (CSR) initiatives. The ability to track progress, reflect on outcomes, and continuously improve is essential for organizations that want to create a positive impact on society and the environment.
 

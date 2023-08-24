@@ -1,5 +1,3 @@
-Chapter 3: Developing a Corporate Social Responsibility Mindset
-===============================================================
 
 Developing a corporate social responsibility (CSR) mindset is essential for driving meaningful positive impact within the workplace. It requires a dedication to values such as sustainability, social justice, and environmental responsibility. In this chapter, we will explore techniques for cultivating a CSR mindset, including utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through CSR.
 

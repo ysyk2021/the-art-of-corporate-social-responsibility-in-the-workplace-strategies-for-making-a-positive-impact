@@ -1,5 +1,3 @@
-Developing Strategies for Incorporating CSR into Business Practices
-==========================================================================================================
 
 Developing your corporate social responsibility (CSR) skills involves developing strategies for incorporating CSR into business practices. In this chapter, we will explore effective strategies for integrating CSR into core business functions and processes.
 

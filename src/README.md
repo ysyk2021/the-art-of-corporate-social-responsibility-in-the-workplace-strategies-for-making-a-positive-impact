@@ -1,4 +1,4 @@
-# Introduction
+
 
 Corporate Social Responsibility (CSR) has become an increasingly important aspect of business in recent years. As consumers and employees become more socially and environmentally conscious, companies are under increasing pressure to demonstrate their commitment to social responsibility and sustainability. But CSR is more than just a buzzword or a marketing tactic – it's an opportunity for companies to make a positive impact on society while also benefiting their bottom line.
 

@@ -1,5 +1,3 @@
-Avoiding Information Overload
-=======================================================================
 
 Technology can be a powerful tool in advancing corporate social responsibility (CSR) initiatives within the workplace. However, the abundance of information and the fast pace of technological advancements can also lead to information overload and hinder effective implementation of CSR strategies. In this chapter, we will explore strategies for leveraging technology for CSR while avoiding information overload.
 

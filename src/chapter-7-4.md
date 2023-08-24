@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-=================================================================
 
 Resistance to corporate social responsibility (CSR) initiatives can arise from various stakeholders, including employees, management, shareholders, and customers. In this chapter, we will explore the importance of fostering a growth mindset to manage resistance to CSR.
 

@@ -1,5 +1,3 @@
-Recap of Key Strategies for Incorporating CSR into Business Practices
-=============================================================================================
 
 In this book, we have explored the importance of corporate social responsibility (CSR) in the workplace and provided strategies for making a positive impact on society and the environment while also enhancing organizational performance. In this final chapter, we will recap the key strategies for incorporating CSR into business practices.
 

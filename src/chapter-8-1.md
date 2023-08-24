@@ -1,5 +1,3 @@
-Encouraging Proactive CSR Across the Organization
-=======================================================================================
 
 In this chapter, we will explore strategies for creating a culture of corporate social responsibility (CSR) within an organization. By encouraging proactive CSR across all levels of the organization, companies can create a positive impact on society and the environment while also achieving business success.
 

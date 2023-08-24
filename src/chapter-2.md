@@ -1,5 +1,3 @@
-Chapter 2: Defining Corporate Social Responsibility
-===================================================
 
 Corporate social responsibility (CSR) refers to the concept that businesses should not only focus on maximizing profits but also on contributing to the well-being of society and the environment. In this chapter, we will explore the definition of CSR, its importance, and the scientific principles that underpin it.
 

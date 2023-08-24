@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to CSR
-=====================================
 
 Resistance to corporate social responsibility (CSR) initiatives can be a significant challenge for organizations seeking to make a positive impact on society and the environment. In this chapter, we will explore strategies for managing resistance to CSR.
 

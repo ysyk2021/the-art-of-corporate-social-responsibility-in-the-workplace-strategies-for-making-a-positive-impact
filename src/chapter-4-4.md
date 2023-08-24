@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-==================================================================================================
 
 Understanding the power of corporate social responsibility (CSR) is essential for creating lasting positive impact in the workplace. However, there are often limiting beliefs that can stand in the way of effective CSR implementation. In this chapter, we will explore some common limiting beliefs and strategies for overcoming them.
 

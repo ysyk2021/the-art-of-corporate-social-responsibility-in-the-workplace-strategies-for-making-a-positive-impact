@@ -1,5 +1,3 @@
-Identifying CSR Technologies and Resources
-====================================================================================
 
 Identifying the right technology and resources is essential for leveraging technology to enhance corporate social responsibility (CSR) initiatives. In this chapter, we will explore strategies for identifying CSR technologies and resources that organizations can use to drive sustainability, social responsibility, and ethical behavior.
 

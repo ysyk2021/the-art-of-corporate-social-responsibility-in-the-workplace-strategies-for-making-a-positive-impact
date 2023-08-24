@@ -1,5 +1,3 @@
-Chapter 8: Creating a Culture of CSR
-====================================
 
 Creating a culture of corporate social responsibility (CSR) is essential for embedding CSR into the fabric of an organization. In this chapter, we will explore the elements of a strong CSR culture and how companies can foster it.
 

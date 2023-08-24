@@ -1,5 +1,3 @@
-Fostering Knowledge Sharing and Mentorship
-================================================================================
 
 Creating a culture of corporate social responsibility (CSR) is an ongoing process that requires the commitment and engagement of all employees. In this chapter, we will explore strategies for fostering knowledge sharing and mentorship to build a culture of CSR within an organization.
 

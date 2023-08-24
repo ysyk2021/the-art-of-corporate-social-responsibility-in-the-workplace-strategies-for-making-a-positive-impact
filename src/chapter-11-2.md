@@ -1,5 +1,3 @@
-Final Thoughts and Advice
-=================================================
 
 In this book, we have explored the importance of corporate social responsibility (CSR) in the workplace and provided strategies for making a positive impact on society and the environment while also enhancing organizational performance. In this final chapter, we will summarize our key learnings and provide some final thoughts and advice for implementing CSR within the workplace.
 

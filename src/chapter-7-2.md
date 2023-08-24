@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Resistance
-======================================================================================
 
 Resistance to corporate social responsibility (CSR) initiatives can arise from various stakeholders, including employees, management, shareholders, and customers. In this chapter, we will explore why resistance to CSR initiatives occurs, the impact of this resistance on CSR success, and strategies for managing resistance to CSR.
 

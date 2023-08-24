@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to CSR
-============================================================================================
 
 Defining Corporate Social Responsibility (CSR) is an important step in understanding how it can be applied in the workplace. However, before developing a corporate strategy, it's important to assess your personal approach to CSR. In this chapter, we will explore some strategies for assessing your personal approach to CSR.
 

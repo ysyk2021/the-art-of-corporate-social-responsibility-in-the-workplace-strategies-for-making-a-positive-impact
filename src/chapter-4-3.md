@@ -1,5 +1,3 @@
-Analyzing the Impact of CSR on Individuals and Organizations
-===================================================================================================================================
 
 Corporate social responsibility (CSR) has the power to create positive impact both for individuals and organizations. In this chapter, we will analyze the impact of CSR on individuals and organizations.
 
