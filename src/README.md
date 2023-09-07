@@ -10,3 +10,7 @@ Throughout the book, we'll also address some of the common challenges and pitfal
 Whether you're a CEO looking to integrate CSR into your overall business strategy, or an employee looking to make a difference in your workplace, this book has something for you. So let's get started on the journey to making a positive impact through corporate social responsibility.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
