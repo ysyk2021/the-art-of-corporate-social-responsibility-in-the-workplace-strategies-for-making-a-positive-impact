@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Science Behind CSR
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will delve into the science behind corporate social responsibility (CSR). By examining research and theories related to CSR, this chapter aims to provide a deeper understanding of the underlying principles, mechanisms, and effects of CSR initiatives.
 

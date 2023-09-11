@@ -1,5 +1,4 @@
-Chapter 21: Fostering Accessibility and Inclusivity
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore the importance of fostering accessibility and inclusivity in corporate social responsibility (CSR) practices. Creating an environment that is accessible to all individuals, regardless of their abilities or backgrounds, is crucial for promoting equality, diversity, and social impact.
 

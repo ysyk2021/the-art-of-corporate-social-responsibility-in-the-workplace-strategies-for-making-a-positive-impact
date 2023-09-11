@@ -1,5 +1,4 @@
-Chapter 5: Communicating Effectively
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore the importance of effective communication in corporate social responsibility (CSR) initiatives. By mastering the art of communication, individuals and organizations can amplify their impact, engage stakeholders, and inspire collective action towards a more sustainable and socially responsible future.
 

@@ -1,5 +1,4 @@
-Chapter 5: Recognizing How CSR Contributes to Success
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore how corporate social responsibility (CSR) contributes to the success of organizations. Understanding the ways in which CSR positively impacts various aspects of an organization can help stakeholders recognize its value and make informed decisions regarding their CSR strategies. This chapter examines the key ways in which CSR contributes to organizational success.
 

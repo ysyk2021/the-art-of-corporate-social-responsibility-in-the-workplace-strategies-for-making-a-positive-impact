@@ -1,5 +1,4 @@
-Chapter 12: Fostering a Growth Mindset
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore the concept of a growth mindset and its significance in driving successful corporate social responsibility (CSR) initiatives. By cultivating a growth mindset, individuals and organizations can embrace challenges, learn from failures, and continuously improve their CSR practices for long-term positive impact.
 

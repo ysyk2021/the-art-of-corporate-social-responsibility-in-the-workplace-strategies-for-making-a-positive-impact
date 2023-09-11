@@ -1,5 +1,4 @@
-Chapter 7: Finding Ways to Make a Positive Impact
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore various ways individuals and organizations can actively contribute to making a positive impact through their corporate social responsibility (CSR) efforts. By identifying opportunities, leveraging strengths, and taking purposeful action, we can create meaningful change and contribute to a more sustainable and socially responsible world.
 

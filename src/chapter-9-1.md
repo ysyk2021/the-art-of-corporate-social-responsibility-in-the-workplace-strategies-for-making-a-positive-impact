@@ -1,5 +1,4 @@
-Chapter 18: Identifying CSR Technologies and Resources
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore the importance of identifying corporate social responsibility (CSR) technologies and resources. As technology continues to advance, it provides opportunities for individuals and organizations to enhance their CSR efforts through innovative tools, platforms, and resources.
 

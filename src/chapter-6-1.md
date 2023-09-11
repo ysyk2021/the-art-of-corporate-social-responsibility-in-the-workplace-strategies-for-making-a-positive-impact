@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Principles of Effective CSR
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will delve into the principles that underpin effective corporate social responsibility (CSR) initiatives. Understanding these principles is essential for organizations to develop and implement impactful CSR strategies that align with their values, stakeholders' expectations, and broader societal needs. This chapter explores the key principles that guide effective CSR practices.
 

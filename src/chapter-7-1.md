@@ -1,5 +1,4 @@
-Chapter 6: Identifying Common Sources of Resistance to CSR
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will delve into the common sources of resistance that individuals and organizations may encounter when implementing corporate social responsibility (CSR) initiatives. By understanding these sources of resistance, we can develop strategies to overcome them and foster a culture of sustainability and social responsibility.
 

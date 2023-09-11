@@ -1,5 +1,4 @@
-Chapter 4: Analyzing the Impact of CSR on Individuals and Organizations
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore the profound impact that corporate social responsibility (CSR) can have on both individuals and organizations. Understanding this impact is crucial for organizations to recognize the value of CSR and its potential to drive positive change. This chapter examines the effects of CSR on individuals, such as employees and consumers, as well as the broader implications for organizational success.
 

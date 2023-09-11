@@ -1,5 +1,4 @@
-Chapter 22: Celebrating CSR-Based Achievements
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore the significance of celebrating CSR-based achievements. Recognizing and highlighting the positive outcomes and milestones achieved through corporate social responsibility (CSR) initiatives not only acknowledges the efforts of individuals and organizations but also motivates continued engagement and inspires others to join the movement.
 

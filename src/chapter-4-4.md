@@ -1,5 +1,4 @@
-Chapter 4: Addressing Limiting Beliefs
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore the importance of addressing limiting beliefs that may hinder individuals and organizations from fully engaging in corporate social responsibility (CSR) initiatives. By identifying and challenging these beliefs, we can unlock our potential to create meaningful change and make a positive impact.
 

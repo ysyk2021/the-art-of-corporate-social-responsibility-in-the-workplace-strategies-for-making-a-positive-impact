@@ -1,5 +1,4 @@
-Chapter 1: Overview of Corporate Social Responsibility
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will provide an overview of corporate social responsibility (CSR). This chapter sets the foundation for understanding CSR, its key concepts, and its significance in today's business landscape.
 

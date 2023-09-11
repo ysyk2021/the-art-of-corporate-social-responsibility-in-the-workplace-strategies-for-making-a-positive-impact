@@ -1,5 +1,4 @@
-Chapter 8: Developing Empathy and Compassion through CSR
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore the transformative power of corporate social responsibility (CSR) in developing empathy and compassion among individuals and organizations. By engaging in meaningful CSR initiatives, we can cultivate a deeper understanding of societal challenges, foster empathy towards diverse stakeholders, and inspire compassionate action for positive change.
 

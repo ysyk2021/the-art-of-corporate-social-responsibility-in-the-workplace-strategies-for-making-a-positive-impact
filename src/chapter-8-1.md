@@ -1,5 +1,4 @@
-Chapter 24: Encouraging Proactive CSR Across the Organization
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore the importance of encouraging proactive corporate social responsibility (CSR) across the organization. By fostering a culture of proactivity, organizations can empower employees at all levels to take ownership of CSR initiatives, drive positive change, and contribute to the overall sustainability and impact of CSR efforts.
 

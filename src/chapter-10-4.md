@@ -1,5 +1,4 @@
-Chapter 19: Adapting to Changes in the Workplace
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore the importance of adapting to changes in the workplace context of corporate social responsibility (CSR). As the business landscape evolves, it is crucial for individuals and organizations to embrace change, stay agile, and proactively respond to new challenges and opportunities that impact CSR practices.
 

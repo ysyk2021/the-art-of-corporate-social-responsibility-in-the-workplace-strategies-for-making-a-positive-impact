@@ -1,5 +1,4 @@
-Chapter 6: Utilizing Feedback and Coaching
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore the importance of utilizing feedback and coaching to effectively implement corporate social responsibility (CSR) initiatives. Feedback and coaching play a critical role in guiding organizations towards continuous improvement, ensuring alignment with CSR goals, and fostering a culture of accountability and learning. This chapter examines the benefits and best practices of utilizing feedback and coaching to drive impactful CSR outcomes.
 

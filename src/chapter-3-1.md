@@ -1,5 +1,4 @@
-Chapter 13: Techniques for Cultivating a CSR Mindset
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore techniques for cultivating a corporate social responsibility (CSR) mindset. By adopting these strategies, individuals and organizations can develop a deep understanding of CSR principles, align their values with social and environmental responsibility, and integrate CSR into their everyday practices for sustainable positive impact.
 

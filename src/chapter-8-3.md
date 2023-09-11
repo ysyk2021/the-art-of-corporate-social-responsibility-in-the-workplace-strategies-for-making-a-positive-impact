@@ -1,5 +1,4 @@
-Chapter 23: Fostering Knowledge Sharing and Mentorship
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore the importance of fostering knowledge sharing and mentorship in the context of corporate social responsibility (CSR). Creating a culture of knowledge exchange and mentorship not only enhances individual and organizational learning but also promotes the development of sustainable CSR practices.
 

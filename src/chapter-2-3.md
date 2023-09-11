@@ -1,5 +1,4 @@
-Chapter 2: Assessing Your Personal Approach to CSR
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore how individuals can assess their personal approach to corporate social responsibility (CSR). Understanding our own values, beliefs, and behaviors regarding CSR is crucial for aligning our actions with our desired impact. This chapter provides a framework for self-reflection and evaluation to enhance personal engagement in CSR initiatives.
 

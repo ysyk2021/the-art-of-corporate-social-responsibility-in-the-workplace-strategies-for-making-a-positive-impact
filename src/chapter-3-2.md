@@ -1,5 +1,4 @@
-Chapter 11: Utilizing Positive Self-Talk and Visualization
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Corporate Social Responsibility in the Workplace: Strategies for Making a Positive Impact," we will explore the powerful techniques of positive self-talk and visualization and how they can enhance corporate social responsibility (CSR) efforts. By harnessing the power of our thoughts and mental imagery, we can cultivate a positive mindset, boost motivation, and manifest success in our CSR endeavors.
 
